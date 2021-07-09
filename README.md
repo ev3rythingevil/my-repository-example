@@ -1,0 +1,1 @@
+A long time ago a small man was hounded by seven hounds. Happiness cursed he, for God was a gaunt and hollow dream. Thick rusted blood clotted amongst hoary jaws, pistoned against gentle flesh. A child is born, while a breath is conceived for the final time.
